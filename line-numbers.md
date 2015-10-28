@@ -7,9 +7,8 @@
 #### 7 HELLLLOOOOOO
 #### 8
 #### 9 Github is really awesome.
-
 #### 10
-#### 11
+#### 11 This class is pretty fun 
 #### 12
 #### 13
 #### 14
